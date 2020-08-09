@@ -57,3 +57,7 @@ Another number appears what will you do? I will only take one to dispense the ne
 (10 Minutes later, Cablethekid recieved a callback from the 1st number, after he had recently tried to call it again, 1st_number_callback_to_Cablethekid.mkv)
 
 [1:00 PM 8/9] Andrew Panton: An hour remains and the poll is still split. What a shame if the agent wasn't even on the list.
+
+[2:03 PM 8/9] Andrew Panton: Denise has been removed.
+
+[2:03 PM 8/9] Andrew Panton: The poll is now closed what a day to have squandered. You can't change your votes despite your ponder. An innocent woman kicked out of the group. You all remain to honor this truth. Or maybe i'm joking wouldn't that be a twist. I will leave it to y'all to determine if missed.
