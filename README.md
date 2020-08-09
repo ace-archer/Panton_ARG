@@ -52,6 +52,8 @@ Would I reveal my spy? Are these just more tricks? I'll give you until noon. Nom
 [11:22 AM 8/9] Andrew Panton: This is all in good fun but votes must be made. Do not try to test the limits of the game.
 Another number appears what will you do? I will only take one to dispense the news.
 
-[11:26 AM] Andrew Panton: <Number Redacted, 2nd_Number_Call.mp3>
+[11:26 AM 8/9] Andrew Panton: <Number Redacted, 2nd_Number_Call.mp3>
 
 (10 Minutes later, Cablethekid recieved a callback from the 1st number, after he had recently tried to call it again, 1st_number_callback_to_Cablethekid.mkv)
+
+[1:00 PM 8/9] Andrew Panton: An hour remains and the poll is still split. What a shame if the agent wasn't even on the list.
