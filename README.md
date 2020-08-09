@@ -58,8 +58,22 @@ Another number appears what will you do? I will only take one to dispense the ne
 
 [1:00 PM 8/9] Andrew Panton: An hour remains and the poll is still split. What a shame if the agent wasn't even on the list.
 
+(The poll for who to kick off the discord concludes, the user we'll call Denise is removed)
+
 [2:03 PM 8/9] Andrew Panton: Denise has been removed.
 
 [2:03 PM 8/9] Andrew Panton: The poll is now closed what a day to have squandered. You can't change your votes despite your ponder. An innocent woman kicked out of the group. You all remain to honor this truth. Or maybe i'm joking wouldn't that be a twist. I will leave it to y'all to determine if missed.
 
 [2:05 PM 8/9] Andrew Panton: It is time for a clue since you still remain cold. The answer you seek is really quite old. A hat on the line obstructs the Son. I hope you all are having fun.
+
+(2:41 PM 8/9, Denise rejoins the server)
+
+	[2:41 PM] Denise: I am personally appalled at the childish behavior in this server.
+	[2:42 PM] Denise: How could you all think i’m some sort of undercover spy, as i am clearly an older women. I have a friend who’s son mentioned the infamous podcast, F ** kface and I purely wanted to see if it would be appropriate to watch and if the cast was safe. However, i did not expect a riddle at all. 	I just wanted to help out the investigation but clearly i’m not welcome here. I was worried about the cast, but now i’m worried about the audience.
+	[2:42 PM] Denise: I found the invite again.	
+	[2:43 PM] Denise: At first i enjoyed your enthusiasm and determination, and would want to check in to see how far in you all were. But now, i don’t feel like i’m trusted.
+	[2:44 PM] Denise: So many children have called me a “Karen” and i hope you do not think of me as that but more as a person who stands up for herself.
+
+(Denise is then removed again)
+
+[2:47 PM 8/9] Andrew Panton: A brief talk from the void but was it all planned? Are you all playing further into my hand? Focus on the facts or fall for the follies. Despite what you think i'm really quite jolly.
