@@ -61,3 +61,5 @@ Another number appears what will you do? I will only take one to dispense the ne
 [2:03 PM 8/9] Andrew Panton: Denise has been removed.
 
 [2:03 PM 8/9] Andrew Panton: The poll is now closed what a day to have squandered. You can't change your votes despite your ponder. An innocent woman kicked out of the group. You all remain to honor this truth. Or maybe i'm joking wouldn't that be a twist. I will leave it to y'all to determine if missed.
+
+[2:05 PM 8/9] Andrew Panton: It is time for a clue since you still remain cold. The answer you seek is really quite old. A hat on the line obstructs the Son. I hope you all are having fun.
