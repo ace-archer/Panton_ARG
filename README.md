@@ -5,7 +5,7 @@ Transcript of Every message/notable event from Andrew Panton within discord as f
 
  (first message 8/7, deleted) <Number Redacted, Dr. Pepper Consumer Relations Line>
  
- (cranky kong picture posted & deleted right after? Same as discord server icon?)
+ (cranky kong picture posted & deleted right after, cranky_kong.jpg)
  
 [8:26 PM - 8/8] Andrew Panton: the birdwatcher analyzes a team with no name. they smoke custom cigars and hate the rain.
 
